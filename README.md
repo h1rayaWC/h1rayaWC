@@ -1,1 +1,1 @@
-Software QA Engineer Trainee 🤖
+Software QA Engineer 🤖
